@@ -1,1 +1,5 @@
 # Are-there-affordable-IVF-clinics-in-Ahmedabad-
+
+Yes, Ahmedabad has multiple clinics that offer affordable IVF treatment while maintaining a reasonable standard of care. The basic IVF package at these clinics may start from as low as ₹70,000 to ₹90,000 for a single cycle. These packages usually cover primary procedures like egg retrieval and embryo transfer but may not include medications, tests, or specialized techniques like ICSI. Budget-friendly clinics often offer promotional packages or discounted rates for multiple cycles. It's important to check whether the quoted price is comprehensive or if there will be significant additional costs. Many affordable clinics still maintain competent staff and good success rates, although the facilities may be more modest compared to premium centres. Always verify the clinic’s success rate, doctor’s qualifications, and lab standards before proceeding, even when affordability is a priority.
+
+https://ayuhfertilitycentre.com/ivf-cost-ahmedabad-ayuh/
